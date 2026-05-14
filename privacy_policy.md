@@ -42,6 +42,6 @@ We may update our Privacy Policy from time to time.
 
 Developer: Gopang IT Solution
 
-Email: your-email@example.com
+Email: younisgopang7575@example.com
 
 © 2026 CGPA & GPA Calculator
